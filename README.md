@@ -17,6 +17,9 @@
 11. **SIMPLE DESIGN** : https://abduzeedo.com
 12. **FRAMES SCROLLING** : https://dozestudios.netlify.app
 13. **DOZE STUDIOS** : https://doze.studio
+14. **CARTOON TYPE** : https://decathlon-yeyeweller.index.studio
+15. **FRIDAY SOCIETY** : https://vendredi-society.fr
+16. **COOL ANIMATIONS RESTURANT** : https://tigermilkrestaurants.com/fr
 
 
 
