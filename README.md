@@ -11,7 +11,12 @@
 5. **AI** : https://ramos-app.webflow.io
 6. **MISSION MARS** : https://missionmars.peachworlds.com
 7. **MISC** : https://www.stinkstudios.com
-8. **INTERIOR DESIGNER** : https://saisei-sbj.webflow.io/
+8. **INTERIOR DESIGNER** : https://saisei-sbj.webflow.io
+9. **CREATIVE DESIGN** : https://lilfrogeth.com
+10. **REJOUICEE** : https://www.rejouice.com
+11. **SIMPLE DESIGN** : https://abduzeedo.com
+12. **FRAMES SCROLLING** : https://dozestudios.netlify.app
+13. **DOZE STUDIOS** : https://doze.studio
 
 
 
