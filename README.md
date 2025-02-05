@@ -20,6 +20,8 @@
 14. **CARTOON TYPE** : https://decathlon-yeyeweller.index.studio
 15. **FRIDAY SOCIETY** : https://vendredi-society.fr
 16. **COOL ANIMATIONS RESTURANT** : https://tigermilkrestaurants.com/fr
+17. **CAFE DESIGN** : https://www.behance.net/gallery/211453867/Road-CafeBrand-Identity?utm_source=extension&utm_medium=click&utm_campaign=muzli
+18. **PRODUCT** : https://handycomponents.app/?ref=onepagelove
 
 
 
