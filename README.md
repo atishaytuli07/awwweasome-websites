@@ -28,7 +28,10 @@
 22. **100 VH PORTFOLIO** : https://www.alexandrenaparker.com
 23. **SIMPLE SCROLLING** : https://www.ottografie.nl
 24. **NAVBAR** : https://the-brandidentity.com
-25. **E-COMMERCE WITH DEMO** : https://unplainofficial.com 
+25. **E-COMMERCE WITH DEMO** : https://unplainofficial.com
+26. **AI DESIGN** : https://maxibestof.one/websites/70848-v7-labs
+27. **VIBRANT** : https://www.vibrantpractice.com/?ref=lapaninja
+28. **VI COOL BRAND** : https://www.via.au
 
 
 
