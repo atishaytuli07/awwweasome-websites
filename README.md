@@ -25,6 +25,10 @@
 19. **GEM** : https://365ayearof.cartier.com/en
 20. **MODREN E-COMMERCE** : https://www.frankys-hats.com
 21. **CREATIVE DEVELOPER PORTFOLIO** : https://www.stabondar.com
+22. **100 VH PORTFOLIO** : https://www.alexandrenaparker.com
+23. **SIMPLE SCROLLING** : https://www.ottografie.nl
+24. **NAVBAR** : https://the-brandidentity.com
+25. **E-COMMERCE WITH DEMO** : https://unplainofficial.com 
 
 
 
