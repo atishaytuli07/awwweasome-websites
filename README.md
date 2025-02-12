@@ -43,6 +43,8 @@
 37. **POSTER TV** : https://posterco.tv
 38. **CAN DRINK BRAND IMAGINATION** : https://emaillove.com/email-inspiration-from-swoon
 39. **RETRO TYPE** : https://www.byooooob.com
+40. **RAIL** : https://rail.io
+41. **HELLO COMRADE** : https://hellocomradestudio.com
 
 
 
